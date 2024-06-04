@@ -14,4 +14,4 @@ I welcome discussing your projects and help you find success!
 - 🌱 I’m currently Solana and DevOps
 - 📫 Ask me about anything, I am happy to help
 
-⭐️ From [GuruJustin](https://github.com/MilosHouse-dev/milos-dev)
+⭐️ From [Milos.M](https://github.com/MilosHouse-dev/milos-dev)
